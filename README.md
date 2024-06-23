@@ -42,7 +42,7 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 ✅马蹄湾 13min 4:00前    
 （Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
 （前往Grand Canyon Junction/Village 4:00出发 3h车程）   
-回Colorado City
+回Colorado City    
 **晚上住Colorado City沿途 沙漠看星空**    
 
 # 7/31 自然之约 day2 
