@@ -1,6 +1,7 @@
 Vegas 3小时时差；羚羊谷 2小时
 
 # 7/27 EWR 8:15p-10:53p LAS UA2038 $159
+机场租车 7/28 12:00am - 7/31 11:59pm
 **晚上住Vegas**
 
 # 7/28-7/29 
@@ -52,5 +53,5 @@ Newport Beach
 
 **晚上住LA**
 
-# 8/4 LAX-EWR 8/4 8:55pm-5:18am JetBlue  $153
+# 8/4 LAX-EWR 8/4 8:55pm-5:18am JetBlue B6 1574  $153
 Grand Market 和天使之路
