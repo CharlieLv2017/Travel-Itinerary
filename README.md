@@ -1,19 +1,19 @@
 Vegas 3小时时差；羚羊谷 2小时
 
-# 7/27 EWR 8:15p-10:53p LAS UA2038 $159
-机场租车 7/28 12:00am - 7/31 11:59pm
+# 7/27 EWR-LAS 8:15p-10:53p UA2038 $159
+机场租车 7/28 12:00am - 7/31 11:59pm   
 **晚上住Vegas**
 
 # 7/28-7/29 
-Sphere圆球   
-Area15超市   
+Sphere著名大圆球   
+Area15奇异超市   
 Vegas loop 马斯克建造的特斯拉专用隧道   
 downtown Fremont casino 老城著名景点  
 dick's last resort 滑稽餐厅  
 Hell's Kitchen 厨师Gordon Ramsey的餐厅  
-Venetian 威尼斯人  
-belliago 音乐喷泉  
-火山表演  
+Venetian 威尼斯人划船  
+Bellagio 音乐喷泉、温室花园   
+Mirage 火山秀  
 **晚上住Vegas**
 
 # 7/29
@@ -29,6 +29,7 @@ Forrest Gump Point
 大峡谷 
 胡佛大坝 返回Vegas
 Vegas飞LA/尔湾 或者开车前往
+机场租车 7/31 9p - 8/4 8p  
 
 **晚上住LA/尔湾**
 
