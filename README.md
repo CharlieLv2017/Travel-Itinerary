@@ -110,3 +110,55 @@ omomo奶茶
 韩国城   
 小东京   
 ✅机场7:00前到
+
+## Amex:  
+Turo 150+ -30   
+Hertz 350+ -70   
+budget 250+ -50   
+gas +5MR up to 2000   
+
+Terranea Resort 1000+ -200   
+Hilton All inclusive resorts 1000+ -200   
+Hilton Las Vegas 400+ -90   
+IHG 250+ -50   
+Global ambassador hotel 1000+ -200   
+Omni hotels resorts 750+ -150    
+PGA National resorts 500+ -100   
+worldhotels 750+ -150   
+Unbound collection by Hyatt 400+ -100   
+Luxury Escapes 1000+ -200    
+Minor hotels group 150+ -50   
+Hyatt inclusive collection 750+ -200   
+Grand Hyatt 250+ -50   
+Preferred Hotel 500+ -100   
+
+Frontier 200+ -50   
+
+## Chase:   
+Alaska 10% 50+ max 45   
+Turo 100+ -10(also WF)    
+Zip 10% 18+ -10(also WF)    
+
+Aloft Hotels 10% 100+ max 57(also WF)   
+Renaissance Hotels 10% 100+ max 75   
+Hyatt Place 10% 100+ max 40   
+Hyatt House 10% 100+ max 40   
+SpringHill Suites by Marriott 10% 100+ max 43(also WF)    
+TownePlace Suites by Marriott 10% 100+ max 57(also WF)    
+Four Points by Sheraton 10% 100+ max 57(also WF)   
+Element Hotels 10% 100+ max 57(also WF)   
+
+Shake shack
+Five Guys 10% WF   
+
+## Citi Custom
+sixt 10% 100+ max 20   
+Turo 150+ -25   
+Caesars Rewards 250+ -25   
+
+sunoco 3% 35+ max 5   
+
+## BOA
+Booking, Expedia, Hotels 5% off up to 20% off code BOFA5    
+
+
