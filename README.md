@@ -5,15 +5,17 @@ Vegas 3小时时差；羚羊谷 2小时
 **晚上住Vegas**
 
 # 7/28-7/29 
-Sphere著名大圆球   
-Area15奇异超市   
+Sphere 网红大圆球   
+Area15 奇异超市   
 Vegas loop 马斯克建造的特斯拉专用隧道   
 downtown Fremont casino 老城著名景点  
 dick's last resort 滑稽餐厅  
-Hell's Kitchen 厨师Gordon Ramsey的餐厅  
+Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅  
 Venetian 威尼斯人划船  
-Bellagio 音乐喷泉、温室花园   
+Bellagio 百乐宫音乐喷泉、温室花园   
 Mirage 火山秀  
+Las Vegas Welcome Sign
+Wynn 永利 MGM 天桥
 **晚上住Vegas**
 
 # 7/29
@@ -37,17 +39,22 @@ Vegas飞LA/尔湾 或者开车前往
 Santa Monica沙滩 落日飞车
 格里菲斯天文台 好莱坞 
 La La Land取景地公园
-Getty Center
+Getty Center  
+比弗利山庄  
+打卡UCLA   
 
 **晚上住LA**
 
 # 8/2 
-Avalon  Santa Catalina小岛
+Avalon  Santa Catalina小岛   
+或
+Santa Barbara 圣巴巴拉  
 
 **晚上住LA**
 
 # 8/3
-丁胖子广场 罗兰岗 圣盖博
+丁胖子广场 罗兰岗 圣盖博 中餐   
+拜访Caltech加州理工大学  
 尔湾 
 Laguna Beach
 Newport Beach
