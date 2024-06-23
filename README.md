@@ -1,7 +1,8 @@
 ## 1. Las Vegas和Los Angeles 时差3h；羚羊谷、大峡谷 2h 
 ## 2. 选择必去景点“@@”，提前查好时间
 ## 3. 选择早上开车（早睡）/晚上开车（晚起）
-## 4. 2晚Vegas 2晚Colorado City 4晚LA
+## 4. 2晚Vegas 2晚Colorado City 4晚LA 预算：200+200+1200     
+## 5. 租车预算： Vegas：300  LA：400
 
 # 7/27 EWR-LAS 8:15p-10:53p 5h30m UA2038 $159
 晚餐： 机场   夜宵：？？   
