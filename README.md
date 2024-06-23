@@ -1,7 +1,7 @@
 ## 1. Las Vegas和Los Angeles 时差3h；羚羊谷、大峡谷 2h 
 ## 2. 选择必去景点“@@”，提前查好时间
 ## 3. 选择早上开车（早睡）/晚上开车（晚起）
-## 4. 3晚Vegas 1晚Page 4晚LA
+## 4. 2晚Vegas 2晚Colorado City 4晚LA
 
 # 7/27 EWR-LAS 8:15p-10:53p 5h30m UA2038 $159
 晚餐： 机场   夜宵：？？   
@@ -32,7 +32,7 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 胡佛大坝  
 前往Colorado City 2h30m 时差3h->2h    
   
-**晚上住Colorado City沿途**    
+**晚上住Colorado City沿途 沙漠看星空**    
 
 # 7/30 自然之约 day1
 早餐8:00：？？ 午餐1:00：？？ 晚餐7:00：？？   
@@ -42,8 +42,8 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 ✅马蹄湾 13min 4:00前    
 （Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
 （前往Grand Canyon Junction/Village 4:00出发 3h车程）   
-
-**晚上住Page 沙漠看星空**    
+回Colorado City
+**晚上住Colorado City沿途 沙漠看星空**    
 
 # 7/31 自然之约 day2 
 早午餐11:00：？？  晚餐6:00机场：IN-N-OUT    
