@@ -20,20 +20,20 @@ Mirage 火山秀
 **晚上住Vegas**
 
 # 7/30
-前往羚羊谷 马蹄湾
-Forrest Gump Point
+前往羚羊谷 马蹄湾  
+Forrest Gump Point（阿甘电影著名镜头）
 
-**晚上住大峡谷**
+**晚上住大峡谷 沙漠看星空**
 
 # 7/31 
-大峡谷 
+大峡谷南缘/北缘/西缘 
 胡佛大坝 返回Vegas
 Vegas飞LA/尔湾 或者开车前往
 机场租车 7/31 9p - 8/4 8p  
 
 **晚上住LA/尔湾**
 
-# 8/1 
+# 8/1与8/3可互换 
 Santa Monica沙滩 落日飞车
 格里菲斯天文台 好莱坞 
 La La Land取景地公园
@@ -55,4 +55,7 @@ Newport Beach
 **晚上住LA**
 
 # 8/4 LAX-EWR 8/4 8:55pm-5:18am JetBlue B6 1574  $153
-Grand Market 和天使之路
+Grand Market   
+天使之路   
+韩国城   
+小东京   
