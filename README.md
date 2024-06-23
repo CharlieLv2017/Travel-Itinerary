@@ -6,8 +6,8 @@
 ## 5. 租车预算： Vegas：400  LA：400 gas:200 平均$250/人
 ## 6. 餐饮：人均30/天*8=$240
 约1100
-# 7/27 EWR-LAS 8:15p-10:53p 5h30m UA2038 $159
-晚餐： 机场   夜宵：？？   
+# 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 $159
+晚餐EWR机场：    夜宵：？？   
 📅机场租车 7/28 12:00am - 7/31 11:59pm    
 
 **晚上住Vegas**
@@ -64,7 +64,8 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 📅Southwest 7:20p-8:35p $46   
 📅机场租车 9p - 8/4 9p   
 
-**晚上住LA**    
+**晚上住LA**
+booking $584(nonref)/$612(refun)<https://www.booking.com/hotel/us/sweet-house-18mins-to-dtla-2-bedrooms.html?aid=2040314&label=metagha-link-LUUS-hotel-9363264_dev-desktop_los-4_bw-38_dow-Wednesday_defdate-0_room-0_gstadt-3_rateid-0_aud-0_gacid-_mcid-50_ppa-0_clrid-0_ad-0_gstkid-0_checkin-20240731_ppt-&sid=7abb850b41f170b8e29471c04c3b10a5&all_sr_blocks=936326401_365794060_4_0_0;checkin=2024-07-31;checkout=2024-08-04;dest_id=20015647;dest_type=city;dist=0;group_adults=3;group_children=0;hapos=1;highlighted_blocks=936326401_365794060_4_0_0;hpos=1;matching_block_id=936326401_365794060_4_0_0;no_rooms=1;req_adults=3;req_children=0;room1=A%2CA%2CA;sb_price_type=total;sr_order=popularity;sr_pri_blocks=936326401_365794060_4_0_0__58440;srepoch=1719167445;srpvid=33c982263b9102bd;type=total;ucfs=1&>    
 
 # 8/1 星光大道  
 早午餐11:00：？？  晚餐7:00：？？    
