@@ -64,6 +64,7 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 1:30前往Page 2h20m 沿US 89    
 ✅📅 羚羊谷（选择上or下）$55 3:50前到 3:15 3:45 4:15 4:45(sold out) 另外一家4:00 4:30 5:00    
 <https://www.antelopelowercanyon.com/tours/>    
+<https://lowerantelope.com/tours/>   
 ✅ 马蹄湾 13min 7:30前    
 （Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
 （前往Grand Canyon Junction/Village 4:00出发 3h车程）   
