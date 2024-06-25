@@ -66,7 +66,9 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
 ✅ 马蹄湾 13min 7:30前    
-（Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
+
+Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
+Monument Valley 纪念碑谷
 （前往Grand Canyon Junction/Village 4:00出发 3h车程）   
 回Colorado City 沿US89A    
 
