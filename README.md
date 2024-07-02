@@ -57,7 +57,7 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 早午餐12:00：？？ 晚餐7:00：？？   
 
 【上午】    
-✅📅 11:00羚羊谷（下）$55 前到  另外一家        
+✅📅 1:45羚羊谷（下）$218.4 前到Dixie’s Lower Antelope Canyon Tours    
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
 ✅ 2:00马蹄湾 13min 7:30前    
