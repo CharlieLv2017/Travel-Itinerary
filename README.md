@@ -100,7 +100,7 @@ Expedia $856 Family Suite <https://www.expedia.com/Anaheim-Hotels-Anaheim-Portof
 # 8/1 星光大道  
 早午餐11:00：？？  晚餐7:00：？？    
 
-✅Santa Monica沙滩 落日飞车   
+✅Santa Monica沙滩 66号公路终点 落日飞车   
 ✅Griffith Obs格里菲斯天文台   
 ✅La La Land取景地公园
 ✅好莱坞星光大道    
