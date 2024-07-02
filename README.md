@@ -63,6 +63,7 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
 4:00前往大峡谷（国家公园门票35）   
+✅ 途径Antelope Pass Canyon   
 ✅ 大峡谷南峡2h20m看日落7:35 沿US 89    
 
 这次不去：  
@@ -74,10 +75,11 @@ Monument Valley 纪念碑谷
 
 # 7/31 自然之约 day2   
 早午餐12:00：？？  晚餐6:00机场：IN-N-OUT    
-Williams/Tusayan   
-✅ 胡佛大坝  45m    
+11:00出发
+✅ 打卡历史著名的66号公路  
+✅ 胡佛大坝      
 ✅ Las Vegas Welcome Sign    
-返回Vegas  11:00出发 沿US89A 4h30m  
+返回Vegas 沿I-40 4h30m  
 午餐 Hurricane/St George
 飞LAX  3:00以后    
 📅Delta 5:20p-6:36p $46   
