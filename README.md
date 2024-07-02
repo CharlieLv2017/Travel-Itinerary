@@ -62,11 +62,10 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 ✅📅 1:45羚羊谷（下）$218.4 前到Dixie’s Lower Antelope Canyon Tours    
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
-
-【下午】    
 4:00前往大峡谷（国家公园门票35）   
 ✅ 大峡谷南峡2h20m看日落7:35 沿US 89    
 
+这次不去：  
 Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
 Monument Valley 纪念碑谷    
 （前往Grand Canyon Junction/Village 4:00出发 3h车程）    
