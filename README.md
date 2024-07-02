@@ -75,9 +75,9 @@ Monument Valley 纪念碑谷
 # 7/31 自然之约 day2   
 早午餐12:00：？？  晚餐6:00机场：IN-N-OUT    
 Williams/Tusayan   
+✅ 胡佛大坝  45m    
 ✅ Las Vegas Welcome Sign    
-✅ 胡佛大坝  45m 7点前    
-返回Vegas  10:00出发 沿US89A 4h30m  
+返回Vegas  11:00出发 沿US89A 4h30m  
 午餐 Hurricane/St George
 飞LAX  3:00以后    
 📅Delta 5:20p-6:36p $46   
