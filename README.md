@@ -57,20 +57,21 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 早午餐12:00：？？ 晚餐7:00：？？   
 
 【上午】    
+✅ 11:00马蹄湾 Lee's Ferry   
+【下午】    
 ✅📅 1:45羚羊谷（下）$218.4 前到Dixie’s Lower Antelope Canyon Tours    
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
-✅ 3:00马蹄湾 13min Lee's Ferry 5:00前    
 
 【下午】    
-5:00前往大峡谷   
+4:00前往大峡谷（国家公园门票35）   
 ✅ 大峡谷南峡2h20m看日落7:35 沿US 89    
 
 Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
 Monument Valley 纪念碑谷    
 （前往Grand Canyon Junction/Village 4:00出发 3h车程）    
 
-**晚上住Page, AZ 沙漠看星空**    
+**晚上住Williams/Tusayan沙漠看星空**    
 
 # 7/31 自然之约 day2   
 早午餐12:00：？？  晚餐6:00机场：IN-N-OUT    
