@@ -57,13 +57,14 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 早午餐12:00：？？ 晚餐7:00：？？   
 
 【上午】    
-✅ 11:00马蹄湾 Lee's Ferry   
+✅ 11:00马蹄湾   
 【下午】    
 ✅📅 1:45羚羊谷（下）$218.4 前到Dixie’s Lower Antelope Canyon Tours    
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
 4:00前往大峡谷（国家公园门票35）   
-✅ 途径Antelope Pass Canyon   
+✅ 途径Antelope Pass Canyon    
+(Lee's Ferry/Navajo Br如果有时间)   
 ✅ 大峡谷南峡2h20m看日落7:35 沿US 89    
 
 这次不去：  
