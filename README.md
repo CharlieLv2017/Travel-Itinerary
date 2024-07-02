@@ -49,7 +49,7 @@ New York New York 过山车
 Downtown Fremont Street Casino 老城著名景点    
 Vegas Loop 马斯克建造的特斯拉专用隧道    
 【傍晚】   
-5点前往Page 4h30m     
+4点前往Page 4h30m     
 
 **晚上住Page沿途 沙漠看星空**    
 
