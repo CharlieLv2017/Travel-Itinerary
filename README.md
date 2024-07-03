@@ -7,8 +7,8 @@ Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h
 ✅ 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6   
 ✅ 8/4 LAX-EWR 8:55p-5:18a 5h20m B6 1574 12.4k Amex(15.5k)+$5.6
 ## 3. 住宿： 人均320
-📅 7/27-7/29 2晚Vegas 总计200    
-📅 7/29-7/31 2晚Colorado City 总计110   
+📅 7/27-7/30 3晚Vegas Mandalay Bay 总计477.33    
+📅 7/30-7/31 1晚Williams 总计110   
 📅 7/31-8/4 4晚LA  总计600      
 ## 4. 租车预算： 人均240
 📅 Vegas 7/27 11p - 7/31 11p 总计300    
