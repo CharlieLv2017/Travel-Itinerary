@@ -1,7 +1,7 @@
 # Vegas & LA
 ## 1. 注意事项
 Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h   
-选择必去景点，提前查好营业时间   
+选择必去景点，提前查好营业时间 <https://vegas.com>    
 选择早上开车（早睡）/晚上开车（晚起）  
 ## 2. 机票: 人均350+50 
 ✅ 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6   
@@ -24,45 +24,53 @@ gas:120
 
 **晚上住Vegas**
 
-# 7/28 赌城魅力 day1 以strip为主
-早午餐11:00：📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅/凯撒自助  晚餐8:00： Dick's last resort 滑稽餐厅    
+# Sun 7/28 赌城魅力 day1 以strip为主
+早午餐11:00：📅 凯撒自助  晚餐8:00： Dick's last resort 滑稽餐厅    
 
-【午后】  
-✅ Area15 奇异超市   
-✅ Sphere 网红大圆球  
-【傍晚】   
-✅ Seven Magic Mountains七彩石（7:00出发，建议日落时分7:48）  25m
-【晚上】  
-✅📅 Bellagio 百乐宫音乐喷泉、温室花园    
-✅ Mandalay Bay 曼德勒海湾 酒店中间有人造海滩和水族馆    
-✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
+【午后(室内活动)】  
+先去超市买水、零食、日用品、防晒、防中暑等！    
+✅ Area15 奇异超市(11am-11pm;1am for Fri and Sat)    
+✅ Mandalay Bay 曼德勒海湾 酒店中间有人造海滩(8am-7pm)和水族馆(10am-8pm)    
+✅📅 Bellagio 百乐宫音乐喷泉（12:30pm-7:30pm 每个整点和半点，8:00pm-12:00am 每15分钟一次）、温室花园Bellagio Conservatory & Botanical Gardens    
 ✅ Venetian 威尼斯人划船   
+✅ Caesars 凯撒皇宫、密室逃脱$42    
+✅ MGM Grand 美高梅     
+Immersive Van Gogh @ The Shops at Crystals $31     
+【傍晚】   
+✅ Sphere 网红大圆球   
+【晚上】  
+✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
 New York New York 过山车   
 📅 Mirage 火山秀/📅 The Beatles LOVE by Cirque du Soleil 太阳马戏团    
 
 **晚上住Vegas**   
 
-# 7/29  赌城魅力 day2 以strip为主
-午餐11:00：凯撒自助/📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅  晚餐7:30：？？    
+# Mon 7/29  赌城魅力 day2 以strip为主
+午餐11:00：📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅  晚餐5:00：Chinatown        
 
 【白天】   
 Downtown Fremont Street Casino 老城著名景点    
 Vegas Loop 马斯克建造的特斯拉专用隧道    
+✅ Brew Tea Bar 奶茶店   
+Las Vegas Outlets（一南一北有两家，北大室外南小室内）   
+Chinatown Shanghai Taste上海弄堂、洞庭春、888韩国烧烤     
 【傍晚】   
-4点前往Page 4h30m     
+✅ Seven Magic Mountains七彩石（7:00出发，建议日落时分7:48）  25m  
 
-**晚上住Page沿途 沙漠看星空, 参考<https://darkskymap.com>**    
+**晚上住Vegas**    
 
-# 7/30 自然之约 day1
-早午餐12:00：？？ 晚餐7:00：？？   
+# Tue 7/30 自然之约 day1
+早午餐12:00：Page小镇午餐 晚餐7:00：？？   
 
 【上午】    
-✅ 11:00马蹄湾   
+✅ 8:00am-12:30pm 前往Page    
+Page小镇午餐
 【下午】    
 ✅📅 1:45羚羊谷（下）$218.4 前到Dixie’s Lower Antelope Canyon Tours    
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
-4:00前往大峡谷（国家公园门票35）   
+3:30 马蹄湾   
+4:30 前往大峡谷（国家公园门票35）   
 ✅ 途径Antelope Pass Canyon    
 (Lee's Ferry/Navajo Br如果有时间)   
 ✅ 大峡谷南峡2h20m看日落7:35 沿US 89    
@@ -70,14 +78,14 @@ Vegas Loop 马斯克建造的特斯拉专用隧道
 这次不去：  
 Forrest Gump Point（阿甘电影著名镜头） 车程2h10m）   
 Monument Valley 纪念碑谷    
-（前往Grand Canyon Junction/Village 4:00出发 3h车程）    
+（前往Grand Canyon Junction/Village 4:00出发 3h车程）
 
-**晚上住Williams/Tusayan沙漠看星空**    
+**晚上住Page/Williams/Tusayan沿途 沙漠看星空, 参考<https://www.darkskymap.com/nightskybrightness>**  
 
-# 7/31 自然之约 day2   
+# Wed 7/31 自然之约 day2   
 早午餐12:00：？？  晚餐6:00机场：IN-N-OUT    
-11:00出发
-✅ 打卡历史著名的66号公路  
+11:00出发    
+✅ 打卡历史著名的66号公路    
 ✅ 胡佛大坝      
 ✅ Las Vegas Welcome Sign    
 返回Vegas 沿I-40 4h30m  
@@ -97,7 +105,7 @@ Booking $880 <https://www.booking.com/hotel/us/pasadena-single-house-3b1b-san-fa
 Flipkey $384 <https://www.flipkey.com/properties/15556826/>
 Expedia $856 Family Suite <https://www.expedia.com/Anaheim-Hotels-Anaheim-Portofino-Inn-And-Suites.h425396.Hotel-Information?chkin=2024-07-31&chkout=2024-08-04&x_pwa=1&rfrr=HSR&pwa_ts=1719193091830&referrerUrl=aHR0cHM6Ly93d3cuZXhwZWRpYS5jb20vSG90ZWwtU2VhcmNo&useRewards=false&rm1=a3&regionId=5921&destination=Anaheim%2C+California%2C+United+States+of+America&destType=MARKET&neighborhoodId=553248635074843122&selected=425396&latLong=40.8553%2C-74.3996&sort=RECOMMENDED&top_dp=127&top_cur=USD&gclid=Cj0KCQjwj9-zBhDyARIsAERjds3i8TZmxptrUNUoZ1G6_djaTEIM_UEVzqmm-rlJEjOFALUNX0ITegkaAha8EALw_wcB&mctc=10&mdpcid=US.META.HPA.HOTEL-CORESEARCH-desktop.HOTEL&mdpdtl=HTL.425396.20240731.20240804.DDF.38.CID.21114976212.AUDID..RRID.bex_us_desktop&userIntent=&selectedRoomType=26549&selectedRatePlan=206192423&searchId=f642c015-9af0-4f7a-947f-4ef1d8aa9736&propertyName=Anaheim+Portofino+Inn+and+Suites>
 
-# 8/1 星光大道  
+# Thu 8/1 星光大道  
 早午餐11:00：？？  晚餐7:00：？？    
 
 ✅Santa Monica沙滩 66号公路终点 落日飞车   
@@ -110,7 +118,7 @@ Expedia $856 Family Suite <https://www.expedia.com/Anaheim-Hotels-Anaheim-Portof
 
 **晚上住LA**   
 
-# 8/2 寻觅美食  
+# Fri 8/2 寻觅美食  
 早午餐11:00：？？  晚餐7:00：？？    
 
 omomo奶茶    
@@ -120,7 +128,7 @@ omomo奶茶
 
 **晚上住LA**   
 
-# 8/3 邂逅海滩 （三选一）
+# Sat 8/3 邂逅海滩 （三选一）
 早午餐10:00：？？  晚餐7:00：？？   
 
 📅Oceanside跳伞
@@ -132,7 +140,7 @@ omomo奶茶
 
 **晚上住LA**   
 
-# 8/4 LAX-EWR 8:55pm-5:18am JetBlue 5h20m B6-1574 12.4k Amex(15.5k)+$5.6
+# Sun 8/4 LAX-EWR 8:55pm-5:18am JetBlue 5h20m B6-1574 12.4k Amex(15.5k)+$5.6
 早午餐11:00：？？  晚餐：？？    
 
 ✅ Grand Market   
