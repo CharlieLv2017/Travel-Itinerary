@@ -41,6 +41,8 @@ Immersive Van Gogh @ The Shops at Crystals $31
 【晚上】  
 ✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
 New York New York 过山车   
+Start Hotel的自由落体   
+摩天轮   
 📅 Mirage 火山秀/📅 The Beatles LOVE by Cirque du Soleil 太阳马戏团    
 
 **晚上住Vegas**   
