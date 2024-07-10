@@ -85,12 +85,11 @@ Monument Valley 纪念碑谷
 **晚上住Page/Williams/Tusayan沿途 沙漠看星空, 参考<https://www.darkskymap.com/nightskybrightness>**  
 
 # Wed 7/31 自然之约 day2   
-早午餐9:00：？？  晚餐4:00：IN-N-OUT    
-✅ 10:00大峡谷南峡（国家公园门票35）       
+早午餐9:00：？？  午餐12:00 晚餐7:00：IN-N-OUT    
+✅ 9:00大峡谷南峡（国家公园门票35）       
 ✅ Flagstaff打卡历史著名的66号公路    
 胡佛大坝      
-
-5:00 Flagstaff前往Phoenix 2h20m  
+4:00 Flagstaff前往Phoenix 2h20m  
 
 返回Vegas 沿I-40 4h30m  
 午餐 Hurricane/St George   
@@ -110,46 +109,51 @@ Booking $880 <https://www.booking.com/hotel/us/pasadena-single-house-3b1b-san-fa
 Flipkey $384 <https://www.flipkey.com/properties/15556826/>
 Expedia $856 Family Suite <https://www.expedia.com/Anaheim-Hotels-Anaheim-Portofino-Inn-And-Suites.h425396.Hotel-Information?chkin=2024-07-31&chkout=2024-08-04&x_pwa=1&rfrr=HSR&pwa_ts=1719193091830&referrerUrl=aHR0cHM6Ly93d3cuZXhwZWRpYS5jb20vSG90ZWwtU2VhcmNo&useRewards=false&rm1=a3&regionId=5921&destination=Anaheim%2C+California%2C+United+States+of+America&destType=MARKET&neighborhoodId=553248635074843122&selected=425396&latLong=40.8553%2C-74.3996&sort=RECOMMENDED&top_dp=127&top_cur=USD&gclid=Cj0KCQjwj9-zBhDyARIsAERjds3i8TZmxptrUNUoZ1G6_djaTEIM_UEVzqmm-rlJEjOFALUNX0ITegkaAha8EALw_wcB&mctc=10&mdpcid=US.META.HPA.HOTEL-CORESEARCH-desktop.HOTEL&mdpdtl=HTL.425396.20240731.20240804.DDF.38.CID.21114976212.AUDID..RRID.bex_us_desktop&userIntent=&selectedRoomType=26549&selectedRatePlan=206192423&searchId=f642c015-9af0-4f7a-947f-4ef1d8aa9736&propertyName=Anaheim+Portofino+Inn+and+Suites>
 
-# Thu 8/1 星光大道  
+# Thu 8/1 寻觅美食   
+早午餐11:00：？？  晚餐5:00：？？    
+
+9:30-12:00Yuma午餐-4:30 San Diego   
+✅ 5:00 Downtown SD吃taco   
+✅ 7:00 La Jolla Cove 和 Ocean Side 看日落7:47      
+
+**晚上住Ocean Side/尔湾**  
+
+
+# Fri 8/2 星光大道    
 早午餐11:00：？？  晚餐7:00：？？    
-
-✅Santa Monica沙滩 66号公路终点 落日飞车   
-✅Griffith Obs格里菲斯天文台   
-✅La La Land取景地公园
-✅好莱坞星光大道    
-✅📅Getty Center  
-✅比弗利山庄棕榈大道   
-打卡UCLA   
-
-**晚上住LA**   
-
-# Fri 8/2 寻觅美食  
-早午餐11:00：？？  晚餐7:00：？？    
-
-omomo奶茶    
+【上午】
+omomo奶茶   
+✅ 尔湾 Laguna沙滩/Newport沙滩二选一   
+【中午】
 ✅ 丁胖子广场 罗兰岗 圣盖博 LA中餐体验   
 ✅ 拜访Caltech加州理工大学   
-✅ 尔湾 Laguna沙滩/Newport沙滩二选一   
+【下午】
+✅ Griffith Obs格里菲斯天文台    
+✅ La La Land取景地公园    
+✅ 好莱坞星光大道    
+【日落】
+✅ Santa Monica沙滩 66号公路终点 落日飞车   
+打卡UCLA   
 
-**晚上住LA**   
+**晚上住LA/尔湾**    
 
 # Sat 8/3 邂逅海滩 （三选一）
 早午餐10:00：？？  晚餐7:00：？？   
-
-📅Oceanside跳伞
-📅坐船去Avalon Santa Catalina小岛   
-或   
+【上午】
+✅ 📅Getty Center    
+✅ 比弗利山庄棕榈大道    
+（📅坐船去Avalon Santa Catalina小岛）  
+【下午】  
 开车1h30m去Santa Barbara 圣巴巴拉  
-或    
-开车1h30m去San Diego： La Jolla Cove和Oceanside   
 
-**晚上住LA**   
+**晚上住LA/尔湾**   
 
 # Sun 8/4 LAX-EWR 8:55pm-5:18am JetBlue 5h20m B6-1574 12.4k Amex(15.5k)+$5.6
 早午餐11:00：？？  晚餐：？？    
-
+【中午】
 ✅ Grand Market   
 ✅ 天使之路   
+✅ 奥特莱斯购物   
 韩国城   
 小东京   
 ✅ 机场7:00前到
