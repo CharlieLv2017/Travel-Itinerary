@@ -16,7 +16,7 @@ Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h
 gas:100 
 ## 5. 餐饮：人均35/天*8=$280
 📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅 7/28 or 7/29   
-## 约1270
+## 全程约1250
 
 # 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6
 晚餐：EWR机场简餐   夜宵：？？   
