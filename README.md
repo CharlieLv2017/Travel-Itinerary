@@ -10,9 +10,9 @@ Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h
 ✅📅 7/27-7/30 3晚Vegas Mandalay Bay 总计477.33（159.11/人）    
 📅 7/30-7/31 1晚大峡谷附近Williams 总计135（45/人）  
 📅 7/31-8/1 1晚凤凰城Phoenix 总计135（45/人）   
-✅📅 8/1-8/4 3晚LA Montclair 总计416.76（139/人）      
+✅📅 8/1-8/4 3晚LA Montclair Airbnb 总计416.76（139/人）      
 ## 4. 租车预算： 人均330
-✅📅 Vegas-LA 7/28 LAS 9p - LAX 8/4 9p 总计840    
+✅📅 公司Sixt LAS（Vegas机场）7/28 9p - LAX（LA机场） 8/4 9p 总计840    
 gas:150 
 ## 5. 餐饮：人均35/天*8=$280
 📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅 7/28 or 7/29   
