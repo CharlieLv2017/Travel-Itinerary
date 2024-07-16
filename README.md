@@ -25,20 +25,20 @@ gas:150
 **晚上住Vegas**
 
 # Sun 7/28 赌城魅力 day1 以strip为主
-早午餐11:00：📅 凯撒自助  晚餐8:00： Dick's last resort 滑稽餐厅    
+早午餐11:00：📅 凯撒自助  晚餐6:00： Dick's last resort 滑稽餐厅@Excalibur    
 
 【午后(室内活动)】  
 先去超市买水、零食、日用品、防晒、防中暑等！    
-✅ Area15 奇异超市(11am-11pm;1am for Fri and Sat)    
 ✅ Mandalay Bay 曼德勒海湾 酒店中间有人造海滩(8am-7pm)和水族馆(10am-8pm)    
 ✅📅 Bellagio 百乐宫音乐喷泉（12:30pm-7:30pm 每个整点和半点，8:00pm-12:00am 每15分钟一次）、温室花园Bellagio Conservatory & Botanical Gardens    
-✅ Venetian 威尼斯人划船   
 ✅ Caesars 凯撒皇宫、密室逃脱$42    
 ✅ MGM Grand 美高梅     
+✅ Venetian 威尼斯人划船   
 Immersive Van Gogh @ The Shops at Crystals $31     
 【傍晚】   
 ✅ Sphere 网红大圆球   
 【晚上】  
+❗️去机场Sixt租车行取车
 ✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
 New York New York 过山车   
 Start Hotel的自由落体   
@@ -51,9 +51,10 @@ Start Hotel的自由落体
 午餐11:00：📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅  晚餐5:00：Chinatown        
 
 【白天】   
-Downtown Fremont Street Casino 老城著名景点    
+✅ Area15 奇异超市(11am-11pm;1am for Fri and Sat)    
+✅ Downtown Fremont Street Casino 老城著名景点    
 Vegas Loop 马斯克建造的特斯拉专用隧道    
-✅ Brew Tea Bar 奶茶店   
+Brew Tea Bar 奶茶店   
 Las Vegas Outlets（一南一北有两家，北大室外南小室内）   
 Chinatown Shanghai Taste上海弄堂、洞庭春、888韩国烧烤     
 【傍晚】   
