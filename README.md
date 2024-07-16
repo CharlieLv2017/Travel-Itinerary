@@ -30,15 +30,16 @@ gas:150
 【午后(室内活动)】  
 先去超市买水、零食、日用品、防晒、防中暑等！    
 ✅ Mandalay Bay 曼德勒海湾 酒店中间有人造海滩(8am-7pm)和水族馆(10am-8pm)    
-✅📅 Bellagio 百乐宫音乐喷泉（12:30pm-7:30pm 每个整点和半点，8:00pm-12:00am 每15分钟一次）、温室花园Bellagio Conservatory & Botanical Gardens    
 ✅ Caesars 凯撒皇宫、密室逃脱$42    
 ✅ MGM Grand 美高梅     
-✅ Venetian 威尼斯人划船   
+坐monorail    
 Immersive Van Gogh @ The Shops at Crystals $31     
 【傍晚】   
 ✅ Sphere 网红大圆球   
 【晚上】  
-❗️去机场Sixt租车行取车
+❗️去机场Sixt租车行取车    
+✅ Venetian 威尼斯人划船   
+✅📅 Bellagio 百乐宫音乐喷泉（12:30pm-7:30pm 每个整点和半点，8:00pm-12:00am 每15分钟一次）、温室花园Bellagio Conservatory & Botanical Gardens    
 ✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
 New York New York 过山车   
 Start Hotel的自由落体   
