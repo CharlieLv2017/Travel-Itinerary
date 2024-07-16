@@ -32,6 +32,7 @@ gas:150
 ✅ Mandalay Bay 曼德勒海湾 酒店中间有人造海滩(8am-7pm)和水族馆(10am-8pm)    
 ✅ Caesars 凯撒皇宫、密室逃脱$42    
 ✅ MGM Grand 美高梅     
+Museum of Illusions幻觉博物馆    
 坐monorail    
 Immersive Van Gogh @ The Shops at Crystals $31     
 【傍晚】   
