@@ -11,12 +11,12 @@ Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h
 📅 7/30-7/31 1晚大峡谷附近Williams 总计135（45/人）  
 📅 7/31-8/1 1晚凤凰城Phoenix 总计135（45/人）   
 ✅📅 8/1-8/4 3晚LA Montclair Airbnb 总计416.76（139/人）      
-## 4. 租车预算： 人均330
-✅📅 公司Sixt LAS（Vegas机场）7/28 9p - LAX（LA机场） 8/4 9p 总计840    
-gas:150 
+## 4. 租车预算： 人均380
+✅📅 公司Sixt LAS（Vegas机场）7/28 9p - LAX（LA机场） 8/4 9p 总计960+24（保险）    
+gas:156 
 ## 5. 餐饮：人均35/天*8=$280
-📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅 7/28 or 7/29   
-## 全程约1300
+✅📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅 7/29 12:30pm 预约费60   
+## 全程约1350
 
 # 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6
 晚餐：EWR机场简餐   夜宵：？？   
