@@ -25,7 +25,7 @@ gas:156
 **晚上住Vegas**
 
 # Sun 7/28 赌城魅力 day1 以strip为主
-早午餐11:00：📅 凯撒自助  晚餐6:00： Dick's last resort 滑稽餐厅@Excalibur    
+早午餐10:00：📅 凯撒自助  晚餐6:00： Dick's last resort 滑稽餐厅@Excalibur    
 
 【午后(室内活动)】  
 先去超市买水、零食、日用品、防晒、防中暑等！    
@@ -50,7 +50,7 @@ Start Hotel的自由落体
 **晚上住Vegas**   
 
 # Mon 7/29  赌城魅力 day2 以strip为主
-午餐11:00：📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅  晚餐5:00：Chinatown        
+午餐12:30：📅 Hell's Kitchen 凯撒厨师Gordon Ramsey的餐厅  晚餐5:00：Chinatown        
 
 【白天】   
 ✅ Area15 奇异超市(11am-11pm;1am for Fri and Sat)    
@@ -62,7 +62,7 @@ Chinatown Shanghai Taste上海弄堂、洞庭春、888韩国烧烤
 【傍晚】   
 ✅ Las Vegas Welcome Sign    
 ✅ Seven Magic Mountains七彩石（7:00出发，建议日落时分7:48）  25m  
-
+⛽️回酒店前记得加油
 **晚上住Vegas**    
 
 # Tue 7/30 自然之约 day1
@@ -75,7 +75,8 @@ Page小镇午餐
 ✅📅 1:45羚羊谷（下）$218.4 前到Dixie’s Lower Antelope Canyon Tours    
 <https://www.antelopelowercanyon.com/tours/>    
 <https://lowerantelope.com/tours/>   
-3:30-6:00 Page小镇休息吃饭   
+3:30-6:00 Page小镇休息吃饭、
+⛽️加油   
 ✅ 6:30 看日落7:35 马蹄湾   
 (Lee's Ferry/Navajo Br如果有时间)   
 ✅ 途径Antelope Pass Canyon    
@@ -90,16 +91,18 @@ Monument Valley 纪念碑谷
 # Wed 7/31 自然之约 day2   
 早午餐9:00：？？  午餐12:00 晚餐7:00：IN-N-OUT    
 ✅ 9:00大峡谷南峡（国家公园门票35）       
-✅ Flagstaff打卡历史著名的66号公路    
+✅ Flagstaff打卡历史著名的66号公路
+⛽️加油    
 胡佛大坝      
 4:00 Flagstaff前往Phoenix 2h20m  
-
+⛽️Phoenix加油
 **晚上住Phoenix**   
 
 # Thu 8/1 寻觅美食   
 早午餐11:00：？？  晚餐5:00：？？    
 
 9:30-12:00Yuma午餐-4:30 San Diego   
+⛽️Yuma记得加油
 ✅ 5:00 Downtown SD吃taco   
 ✅ 7:00 La Jolla Cove 和 Ocean Side 看日落7:47      
 
@@ -112,7 +115,8 @@ Monument Valley 纪念碑谷
 omomo奶茶   
 ✅ 尔湾 Laguna沙滩/Newport沙滩二选一   
 【中午】
-✅ 丁胖子广场 罗兰岗 圣盖博 LA中餐体验   
+✅ 丁胖子广场 罗兰岗 圣盖博 LA中餐体验  
+⛽️圣盖博加油
 ✅ 拜访Caltech加州理工大学   
 【下午】
 ✅ Griffith Obs格里菲斯天文台    
@@ -131,6 +135,7 @@ omomo奶茶
 ✅ 比弗利山庄棕榈大道    
 （📅坐船去Avalon Santa Catalina小岛）  
 【下午】  
+⛽️路上加油
 开车1h30m去Santa Barbara 圣巴巴拉  
 
 **晚上住LA/尔湾**   
