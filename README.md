@@ -19,7 +19,9 @@ gas:156
 ## 全程约1350
 ## 6. Vegas停车：   
 Caesars Entertainment properties offer free parking to hotel guests, Nevada residents with valid driver's license, and Caesars Rewards members at the Diamond level or above.   
+
 MGM properties offer one hour of free parking to all visitors, three hours of free parking to Nevada locals with a valid driver's license, and free parking to all M Life Rewards members at the Gold, Platinum, Pearl, and NOIR levels.   
+
 Resorts World Las Vegas offers free parking for the first three hours for Nevada residents with a valid I.D. Genting rewards members with an "Elite, Prime, Monarch, and Imperial" tier receive free parking.   
 
 # 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6
