@@ -45,7 +45,10 @@ Immersive Van Gogh @ The Shops at Crystals $31
 New York New York 过山车   
 Start Hotel的自由落体   
 摩天轮   
-📅 Mirage 火山秀/📅 The Beatles LOVE by Cirque du Soleil 太阳马戏团    
+📅 Night Bus Tour   
+📅 Strip   
+📅 Mirage 火山秀（已永久停业）   
+📅 The Beatles LOVE by Cirque du Soleil 太阳马戏团    
 
 **晚上住Vegas**   
 
@@ -62,7 +65,7 @@ Chinatown Shanghai Taste上海弄堂、洞庭春、888韩国烧烤
 【傍晚】   
 ✅ Las Vegas Welcome Sign    
 ✅ Seven Magic Mountains七彩石（7:00出发，建议日落时分7:48）  25m  
-⛽️回酒店前记得加油
+⛽️回酒店前记得加油   
 **晚上住Vegas**    
 
 # Tue 7/30 自然之约 day1
@@ -95,14 +98,14 @@ Monument Valley 纪念碑谷
 ⛽️加油    
 胡佛大坝      
 4:00 Flagstaff前往Phoenix 2h20m  
-⛽️Phoenix加油
+⛽️Phoenix加油   
 **晚上住Phoenix**   
 
 # Thu 8/1 寻觅美食   
 早午餐11:00：？？  晚餐5:00：？？    
 
 9:30-12:00Yuma午餐-4:30 San Diego   
-⛽️Yuma记得加油
+⛽️Yuma记得加油   
 ✅ 5:00 Downtown SD吃taco   
 ✅ 7:00 La Jolla Cove 和 Ocean Side 看日落7:47      
 
@@ -136,7 +139,7 @@ omomo奶茶
 （📅坐船去Avalon Santa Catalina小岛）  
 【下午】  
 ⛽️路上加油
-开车1h30m去Santa Barbara 圣巴巴拉  
+开车1h30m去Santa Barbara 圣巴巴拉   
 
 **晚上住LA/尔湾**   
 
@@ -146,8 +149,8 @@ omomo奶茶
 ✅ Grand Market   
 ✅ 天使之路   
 ✅ 奥特莱斯购物   
-韩国城   
-小东京   
+✅ 韩国城   
+✅ 小东京日本Mall   
 ✅ 机场7:00前到
 
 ## Amex:  
