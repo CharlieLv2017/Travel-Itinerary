@@ -7,7 +7,7 @@ Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h
 ✅ 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6   
 ✅ 8/4 LAX-EWR 8:55p-5:18a 5h20m B6 1574 12.4k Amex(15.5k)+$5.6
 ## 3. 住宿： 人均390
-✅📅 7/27-7/30 3晚Vegas Mandalay Bay 总计478.86+54停车（178/人）    
+✅📅 7/27-7/30 3晚Vegas Mandalay Bay 总计562.31含停车（187.4/人）    
 ✅📅 7/30-7/31 1晚大峡谷附近Flagstaff Airbnb 总计167.5（56/人）  
 📅 7/31-8/1 1晚凤凰城Phoenix 总计135（45/人）   
 ✅📅 8/1-8/4 3晚LA Montclair Airbnb 总计416.76（139/人）      
@@ -45,8 +45,7 @@ Museum of Illusions幻觉博物馆
 Immersive Van Gogh @ The Shops at Crystals $31     
 【傍晚】   
 ✅ Sphere 网红大圆球   
-【晚上】  
-❗️去机场Sixt租车行取车    
+【晚上】      
 ✅ Venetian 威尼斯人划船   
 ✅📅 Bellagio 百乐宫音乐喷泉（12:30pm-7:30pm 每个整点和半点，8:00pm-12:00am 每15分钟一次）、温室花园Bellagio Conservatory & Botanical Gardens    
 ✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
