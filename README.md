@@ -7,7 +7,7 @@ Las Vegas Los Angeles 羚羊谷、大峡谷 时差均为3h
 ✅ 7/27 EWR-LAS 8:21p-10:53p 5h30m UA2038 15k Bilt+$5.6   
 ✅ 8/4 LAX-EWR 8:55p-5:18a 5h20m B6 1574 12.4k Amex(15.5k)+$5.6
 ## 3. 住宿： 人均390
-✅📅 7/27-7/30 3晚Vegas Mandalay Bay 总计477.33（159.11/人）    
+✅📅 7/27-7/30 3晚Vegas Mandalay Bay 总计477.33+54停车（177.11/人）    
 ✅📅 7/30-7/31 1晚大峡谷附近Flagstaff Airbnb 总计167.5（56/人）  
 📅 7/31-8/1 1晚凤凰城Phoenix 总计135（45/人）   
 ✅📅 8/1-8/4 3晚LA Montclair Airbnb 总计416.76（139/人）      
