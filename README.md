@@ -48,7 +48,8 @@ Immersive Van Gogh @ The Shops at Crystals $31
 【晚上】      
 ✅ Venetian 威尼斯人划船   
 ✅📅 Bellagio 百乐宫音乐喷泉（12:30pm-7:30pm 每个整点和半点，8:00pm-12:00am 每15分钟一次）、温室花园Bellagio Conservatory & Botanical Gardens    
-✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景    
+✅ Wynn 永利 MGM 天桥 Paris 巴黎人 凯旋门 埃菲尔铁塔 夜景   
+<https://vegasfoodandfun.b-cdn.net/wp-content/uploads/2023/05/Fountain-Schedule.pdf>
 New York New York 过山车   
 Start Hotel的自由落体   
 摩天轮   
